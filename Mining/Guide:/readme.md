@@ -1,0 +1,1 @@
+- [Beginners Mining Guide 3.20 | Make 600k an hour in Star Citizen 2023](https://youtu.be/-7x3ltLmIm8)
